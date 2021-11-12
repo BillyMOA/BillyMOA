@@ -1,4 +1,4 @@
-# BILLY ... MAN OF ACTION <sub>ACTION</sub> <sub>ACTION</sub> <sub>ACTION</sub>
+# BILLY 🦸‍♂️ MAN OF ACTION 🦸‍♂️ <sub>:)</sub> 
 If you like me code, find me on you tube. 
 - 👋 [My Youtube Channel](https://www.youtube.com/channel/UC_XE9pyIiCTnk8saeld9grQ)
 - 👀 I’m interested in ...
